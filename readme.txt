@@ -1,1 +1,4 @@
-quit wastin your time bruhv
+ethan;
+
+don't like b e a n s;
+
